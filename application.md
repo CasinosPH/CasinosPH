@@ -32,9 +32,9 @@ Interactive elements should use real buttons and links, visible focus outlines, 
 
 ## Reference Resources
 
-- [JILI Casino Review 2026: Bonuses, Slots, Fishing Games & GCash Guide for Filipino Players](https://casinosph.net/jili-casino/)
-- [BingoPlus Review 2026: Bonuses, Bingo Games, Slots & GCash Guide for Filipino Players](https://casinosph.net/bingoplus/)
-- [ArenaPlus Review 2026: Sports Betting, Casino Games & GCash Guide for Filipino Players](https://casinosph.net/arenaplus/)
-- [OKBet Review 2026: Sports Betting, Casino Games & GCash Guide for Filipino Players](https://casinosph.net/okbet/)
-- [Find the Best Casino](https://casinosph.net/)
+- [best betting site ph](https://casinosph.net/best-betting-site-ph/)
+- [big game fishing philippines](https://casinosph.net/big-game-fishing-philippines/)
+- [arena plus ending game](https://casinosph.net/arena-plus-ending-game/)
+- [arenaplus cant withdraw](https://casinosph.net/arenaplus-cant-withdraw/)
+- [CasinosPH Casino Reviews](https://casinosph.net/)
 - [Best Online Casino Philippines](https://casinosph.net/)
